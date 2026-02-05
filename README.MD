@@ -8,7 +8,6 @@ ___________         __
 
 ```
 
-==========
 # J. Hynes & R. Zuk
 # Entropy, 2026
 # mixed-media, 12” x 24” x 8”
@@ -18,4 +17,4 @@ ___________         __
 ### how to: (i) write whatever your heart desires and place it into the woven sculpture, (ii) on the night of HeARTburn, press the buttons to activate and influence Entropy’s disorder.
 
 ### expected outcome: the heart sculpture and its contents will be burned at a private ceremony. 
-==========
+
